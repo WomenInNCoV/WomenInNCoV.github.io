@@ -65,6 +65,7 @@
 
 [要想性别平等，这些问题一定要谈（澎湃新闻）](https://mp.weixin.qq.com/s/9Xw2jD8fo54TJmdeN9ya5g)
 
+
 ### 你应该知道她们
  
 [那颗叫做高耀洁的小行星(编辑 Lisa/理想国 imaginist)](https://mp.weixin.qq.com/s/A2a-2U5bNu3VsFZkGO0tkg)
@@ -85,6 +86,7 @@
 
 [中国疾控中心原副主任：反思此疫，中国疾控该改革了 | 独家专访 （孙滔/DeepTech 深科技）](https://mp.weixin.qq.com/s/R8q9CfKCJ7KSjjMOJdgyCw)
 
+[《人物》 | 武汉女人关秀丽扛起的三十天](https://mp.weixin.qq.com/s/ac55SIyv2gl1ruN7tGPWsg)
 
 ## 女性医务工作者
 
