@@ -115,6 +115,8 @@
 
 ### 医生与护士
 
+[两名武汉女性医护人员的生与死(NYT双语阅读)](https://mp.weixin.qq.com/s/QKkU02F5PC5j1EjqGGnM-Q)
+
 [她们在战疫：有人一月没见孩子，有人奔袭500公里回武汉(三联生活周刊)](https://mp.weixin.qq.com/s/xh_V6oJa4ze0jGC3AoqyLg)
 
 [4.26 万医务人员驰援湖北 女性占三分之二 （周东旭/财新网）](http://china.caixin.com/2020-03-08/101525573.html)
@@ -226,6 +228,8 @@
 
 [湖北籍女工：被疫情困住，被家务缠住 （小郜/尖椒部落）](https://mp.weixin.qq.com/s/64fHfXe4Oxc6h_lHBALcdA)
 
+[“逆行”的还有她们！隔离病房的清洁工阿姨(中国妇女报)](https://mp.weixin.qq.com/s/RVh2K3DThO8o5bKY3vaf4Q)
+
 ### 商人
 
 [喊停美国订单，江苏女老板造 130 条口罩生产线，解决一个市的需求量 （郑亚文/卖家）](https://mp.weixin.qq.com/s/sDgqlkg9pUkqNEj3sIzDXg)
@@ -233,6 +237,8 @@
 [逆行者 | 川菜店女老板：送给医院前线的 2000 斤鱼，是我最好的东西了 （李念雪 黄雨寒/启阳路 4 号）](https://mp.weixin.qq.com/s/0id-5Bu6Xs9g6FIQK_rzfw)
 
 ### 媒体人
+
+[那个发勺子的女记者：看看我给你们准备的炸弹！(克格勃密档)](https://mp.weixin.qq.com/s/bZ0qUXGPOdL0C5Og-yvGKg)
 
 [瘟疫、语言和具体的人：与历史学家罗新的聊天 （剩余价值 SurplusValue）](https://chinadigitaltimes.net/chinese/2020/02/罗新：封！城等极端措施带来的伤害-，会比病毒本/)
 
@@ -245,6 +251,8 @@
 [疫时宅记（梨酱/杨小姐走四方）](https://mp.weixin.qq.com/s/Wm7DxACUyaGgQByXJ1w7pA)
 
 [在武汉的姑娘们（电台·坏姐姐编辑部）](http://music.163.com/program/2065937690/3241671962/?userid=601747591 )
+
+[女报记者武汉纪事〡“流调”如探案：从“复盘”开始( 中国妇女报)](https://mp.weixin.qq.com/s/YYPHKeh40plEvKxGgMA0Mg)
 
 ### 学者
 
@@ -259,6 +267,8 @@
 
 
 ### 文艺工作者
+
+[被禁柏林的严歌苓，借唐婉三字悲悼反思(虎度门)](http://206.189.252.32:8083/%E8%A2%AB%E7%A6%81%E6%9F%8F%E6%9E%97%E7%9A%84%E4%B8%A5%E6%AD%8C%E8%8B%93%EF%BC%8C%E5%80%9F%E5%94%90%E5%A9%89%E4%B8%89%E5%AD%97%E6%82%B2%E6%82%BC%E5%8F%8D%E6%80%9D.html)
 
 [作家方方的武汉封城日记（方方/财新博客）](http://fangfang.blog.caixin.com/)
 
@@ -282,6 +292,7 @@
 
 [武汉方舱里的焉支山（真实的诗人龙巧玲）| (好声量) ](https://mp.weixin.qq.com/s/QDGZlCLjG80-uZzLvHhcaA)
 
+[致六六：千万人的苦难，不应该是你的素材( Epoch故事小馆)](https://mp.weixin.qq.com/s/VYo2eolVXQjt9QMoBpeXBA)
 
 ### 志愿者
 
@@ -304,6 +315,8 @@
 ## 疫情亲历者
 
 ### 患者
+
+[一个武汉女孩的生死问答( 中青报·中青网记者 王梦影/冰点周刊)](https://mp.weixin.qq.com/s/g31RpcwhUXNujdCiLrCzbw)
 
 [武汉女孩得肺炎后写遗书，在家隔离 16 天治愈（石鸣/一条）](https://mp.weixin.qq.com/s/ht-0jMhVeAo-S8yIJGuMlA)
 
@@ -344,6 +357,8 @@
 
 ### 普通人
 
+[在方舱医院当安保的女大学生( 女孩别怕)](https://mp.weixin.qq.com/s/jof1112ufgzHAqZpfrTHJw)
+
 [武汉“封城”前一刻，一名大三女生决定留下来（李仪/澎湃新闻）](https://mp.weixin.qq.com/s/0e4qGvDiMDO4xbVW-H4E6g)
 
 [一个武汉女孩的自述：慌乱中被迫成长，以后要学做家务学烧菜（孟予/南都周刊）](https://mp.weixin.qq.com/s/QrULPtnH669Bz-FbiltD_A)
@@ -366,6 +381,10 @@
 ## 性别不平等
 
 ### 性别暴力
+
+[【新数据】《反家暴法》在上海｜基于91份保护令案例的分析(硝美丽)](https://mp.weixin.qq.com/s/qDkpKyqEijuxpkoiWDXzKg)
+
+[“我自己把血擦掉去睡觉了” | 反家暴小疫苗的自述(回声Huisheng)](https://mp.weixin.qq.com/s/udwrF-4QBN--La9wsf0KyA)
 
 [中国家庭｜那些因疫情而生的家暴(澎湃新闻)](https://m.thepaper.cn/newsDetail_forward_6380299?from=groupmessage&isappinstalled=0)
 
