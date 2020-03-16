@@ -35,7 +35,7 @@
   - [性别暴力](#%e6%80%a7%e5%88%ab%e6%9a%b4%e5%8a%9b)
   - [江山娇](#%e6%b1%9f%e5%b1%b1%e5%a8%87)
   - [被忽视的性别](#%e8%a2%ab%e5%bf%bd%e8%a7%86%e7%9a%84%e6%80%a7%e5%88%ab)
-  - [性少数](#%e6%80%a7%e5%b0%91%e6%95%b0)
+  - [性少数及其他边缘群体](#%e6%80%a7%e5%b0%91%e6%95%b0%e5%8f%8a%e5%85%b6%e4%bb%96%e8%be%b9%e7%bc%98%e7%be%a4%e4%bd%93)
 - [投稿地址：](#%e6%8a%95%e7%a8%bf%e5%9c%b0%e5%9d%80)
 
 ## 不定期精选 NO.1
@@ -57,6 +57,10 @@
 [今年女生节最想要的礼物（ Her 小号）](https://mp.weixin.qq.com/s/VIVA2xh4miN4M15FArWBrg)
 
 [今天很多人对你说节日快乐，我却想祝贺你不再是过去的自己（Alex/绝对是个妞）](https://mp.weixin.qq.com/s/whkDJNBMo-B_fQkv2DaYCg)
+
+[不是女生，不当女神，只想高声祝大家妇女节快乐！(胡悠悠)](https://mp.weixin.qq.com/s/8FpfcBe0hQIb6_qNSj5Deg)
+
+[2020年，我们如何度过妇女节(回声Huisheng)](https://mp.weixin.qq.com/s/lWYCPZkS6X7rKqnm3_j7KQ)
 
 [女性素描 （丁邢/丁东小群）](https://mp.weixin.qq.com/s/puvW6OL3KyubcjPEcbS_sA)
 
@@ -110,6 +114,8 @@
 [武昌医院称护士柳帆因新冠肺炎去世，生前护理技术过硬 （李英强/新京报）](http://www.bjnews.com.cn/news/2020/02/16/690444.html)
 
 ### 医生与护士
+
+[她们在战疫：有人一月没见孩子，有人奔袭500公里回武汉(三联生活周刊)](https://mp.weixin.qq.com/s/xh_V6oJa4ze0jGC3AoqyLg)
 
 [4.26 万医务人员驰援湖北 女性占三分之二 （周东旭/财新网）](http://china.caixin.com/2020-03-08/101525573.html)
 
@@ -274,6 +280,8 @@
 
 [疫期读书\_丨汪天艾：我羞愧于那些不曾落在我身上的棍棒 （徐悦东/新京报书评周刊）](https://mp.weixin.qq.com/s/CscwZwXtRGNLL5MQUMYbHw)
 
+[武汉方舱里的焉支山（真实的诗人龙巧玲）| (好声量) ](https://mp.weixin.qq.com/s/QDGZlCLjG80-uZzLvHhcaA)
+
 
 ### 志愿者
 
@@ -291,6 +299,7 @@
 
 [韩红基金会“举报门”有了处理结果，该事件对公益组织是个警示 （邱慧/中国慈善家杂志）](https://mp.weixin.qq.com/s/aIP6AoLnhxkR9wToWzoeiA)
 
+[经期用品对防疫女战士有多重要？姐妹战疫行动的720小时告诉你！( WOMENOK)](https://mp.weixin.qq.com/s/CxJuPK6284bl7c77HJnYpw)
 
 ## 疫情亲历者
 
@@ -358,6 +367,8 @@
 
 ### 性别暴力
 
+[中国家庭｜那些因疫情而生的家暴(澎湃新闻)](https://m.thepaper.cn/newsDetail_forward_6380299?from=groupmessage&isappinstalled=0)
+
 [疫期反家暴|听到邻居打骂小孩后，我给 ta 们写了一封信 （猪西西/硝美丽）](https://mp.weixin.qq.com/s/IQs8fuTHXVUegwSNz6gU3Q)
 
 [疫期封路，遇家暴无车可逃，她和两个小孩步行四五个小时，还要担心无法通过关卡 （tinybone/硝美丽）](https://mp.weixin.qq.com/s/rZ9eU0NM7SSupihB-n9rbg)
@@ -397,12 +408,17 @@
 
 [疫情揭露中国普遍存在的性别歧视 （经济学人）](http://archive.is/WNO8s)
 
+[男记者笔下的女性社会问题，是什么样的？(做書)](https://mp.weixin.qq.com/s/ChdFF3tn2wyCxiWrb5i5cw)
 
 ### 被忽视的性别
 
 [流行性传染病防治应重视性别差异 （中国妇联新闻）](https://mp.weixin.qq.com/s/etw9yuD3bQSUqIkOtvJb-Q)
 
+[易被忽视的护士：医护间的不平等是在复制传统性别结构？(澎湃思想市场)](https://mp.weixin.qq.com/s/FwE0JYF9y7iijlIbP9g_yw)
+
 [柳叶刀女性专题 | 全球健康中的性别时代即将到来 （柳叶刀/柳叶刀 TheLancet）](https://mp.weixin.qq.com/s/2p7Wgcp6ttLATqJQl2QLJA)
+
+[对不起，我们设计的时候没考虑女性(果壳)](https://mp.weixin.qq.com/s/QPUuU1gx4NRVD0ER3M1hSA)
 
 [是否该为男性和女性处方不同剂量的精神药物?「临床研究」（ 大话精神 ）](https://mp.weixin.qq.com/s/5FP-yS0RQLO9Ih_IKoaAHA)
 
@@ -412,7 +428,7 @@
 
 
 
-### 性少数
+### 性少数及其他边缘群体
 
 [民俗和疫情都不允许出门的日子，我和孩子向老公出柜 （心一妈妈/亲友会 PFLAG）](https://mp.weixin.qq.com/s/SQi98Xg5RQc3f1VtenGMJA)
 
@@ -420,6 +436,7 @@
 
 [疫情中的她们做了什么 | 妇女节专题 （弥生/北同文化）](https://mp.weixin.qq.com/s/2XLDeGRhUu-2JPnwAE8FaA)
 
+[“身份暴露”和断药，武汉艾滋病患者的双重危机(新京报)](https://mp.weixin.qq.com/s/iS4-SULmBBCoAPDIP6fq7Q)
 
 ## 投稿地址：
 *[《看见疫情中的女性》选编集投稿](https://shimo.im/forms/Xaq4MRZgnbSWFGk0/fill)*
