@@ -34,7 +34,7 @@
 - [性别不平等](#%e6%80%a7%e5%88%ab%e4%b8%8d%e5%b9%b3%e7%ad%89)
   - [性别暴力](#%e6%80%a7%e5%88%ab%e6%9a%b4%e5%8a%9b)
   - [江山娇](#%e6%b1%9f%e5%b1%b1%e5%a8%87)
-  - [性别与用药](#%e6%80%a7%e5%88%ab%e4%b8%8e%e7%94%a8%e8%8d%af)
+  - [被忽视的性别](#%e8%a2%ab%e5%bf%bd%e8%a7%86%e7%9a%84%e6%80%a7%e5%88%ab)
   - [性少数](#%e6%80%a7%e5%b0%91%e6%95%b0)
 - [投稿地址：](#%e6%8a%95%e7%a8%bf%e5%9c%b0%e5%9d%80)
 
@@ -97,7 +97,7 @@
 
 [中国疾控中心原副主任：反思此疫，中国疾控该改革了 | 独家专访 （孙滔/DeepTech 深科技）](https://mp.weixin.qq.com/s/R8q9CfKCJ7KSjjMOJdgyCw)
 
-[《人物》 | 武汉女人关秀丽扛起的三十天](https://mp.weixin.qq.com/s/ac55SIyv2gl1ruN7tGPWsg)
+[ 武汉女人关秀丽扛起的三十天(人物)](https://mp.weixin.qq.com/s/ac55SIyv2gl1ruN7tGPWsg)
 
 ## 女性医务工作者
 
@@ -138,6 +138,8 @@
 
 
 ### Whistleblower
+
+[发哨子的人（龚箐琦/人物）](https://www.notion.so/00a9beeb2fe54dfe84a55141a5f592cf?v=cf2bfae990fc4207a8710a40ffeb7f3c)
 
 [专访武汉“造谣”者之一谢琳卡医生：我的事情其实很简单，希望更多支援医护人员抗疫物资 （张晓晖/经济观察报）](http://www.eeo.com.cn/2020/0201/375357.shtml)
 
@@ -236,6 +238,7 @@
 
 [疫时宅记（梨酱/杨小姐走四方）](https://mp.weixin.qq.com/s/Wm7DxACUyaGgQByXJ1w7pA)
 
+[在武汉的姑娘们（电台·坏姐姐编辑部）](http://music.163.com/program/2065937690/3241671962/?userid=601747591 )
 
 ### 学者
 
@@ -395,7 +398,7 @@
 [疫情揭露中国普遍存在的性别歧视 （经济学人）](http://archive.is/WNO8s)
 
 
-### 性别与用药
+### 被忽视的性别
 
 [流行性传染病防治应重视性别差异 （中国妇联新闻）](https://mp.weixin.qq.com/s/etw9yuD3bQSUqIkOtvJb-Q)
 
