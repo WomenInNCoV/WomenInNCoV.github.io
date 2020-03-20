@@ -447,7 +447,7 @@
 
 [你不知道的性别偏见：大部分药物都更适合男性，女性却“无药可用”（斯特凡尼克 环球科学）](https://mp.weixin.qq.com/s/26egZoiBKpdHLvZJ03nFPw)
 
-[“我不在乎薪酬，只想回去工作”——病毒侵袭下的亚洲女性(尖椒部落)](https://mp.weixin.qq.com/s/EaE0wqGGCOqT_WqnE7YMZw)
+
 
 ### 性少数及其他边缘群体
 
