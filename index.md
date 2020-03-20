@@ -439,13 +439,15 @@
 
 [对不起，我们设计的时候没考虑女性(果壳)](https://mp.weixin.qq.com/s/QPUuU1gx4NRVD0ER3M1hSA)
 
+[“我不在乎薪酬，只想回去工作”——病毒侵袭下的亚洲女性(尖椒部落)](https://mp.weixin.qq.com/s/EaE0wqGGCOqT_WqnE7YMZw)
+
 [是否该为男性和女性处方不同剂量的精神药物?「临床研究」（ 大话精神 ）](https://mp.weixin.qq.com/s/5FP-yS0RQLO9Ih_IKoaAHA)
 
 [疼痛有性别差异，女性却一直在吃为男性研发的止疼药（环球科学 果壳 ）](https://mp.weixin.qq.com/s/K1aTFf9FU0KJVP0pB-SV9g)
 
 [你不知道的性别偏见：大部分药物都更适合男性，女性却“无药可用”（斯特凡尼克 环球科学）](https://mp.weixin.qq.com/s/26egZoiBKpdHLvZJ03nFPw)
 
-
+[“我不在乎薪酬，只想回去工作”——病毒侵袭下的亚洲女性(尖椒部落)](https://mp.weixin.qq.com/s/EaE0wqGGCOqT_WqnE7YMZw)
 
 ### 性少数及其他边缘群体
 
