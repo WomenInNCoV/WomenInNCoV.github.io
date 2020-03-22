@@ -26,11 +26,13 @@ a:link {
 }
 
 
-/* 未访问链接*/
 
 a:visited {
     color: #323232;
 }
 
 
-/* 已访问链接 */
+h5 {
+	text-align: right;
+	margin-bottom: 36px;
+}
