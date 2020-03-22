@@ -8,7 +8,7 @@
 
 ##### By A2N, 床位组, 选编小组
 
-- [不定期精选 NO.1](#%e4%b8%8d%e5%ae%9a%e6%9c%9f%e7%b2%be%e9%80%89-no1)
+- [本期精选](#%e6%9c%ac%e6%9c%9f%e7%b2%be%e9%80%89)
 - [妇女节专栏](#%e5%a6%87%e5%a5%b3%e8%8a%82%e4%b8%93%e6%a0%8f)
   - [妇女节快乐](#%e5%a6%87%e5%a5%b3%e8%8a%82%e5%bf%ab%e4%b9%90)
   - [你应该知道她们](#%e4%bd%a0%e5%ba%94%e8%af%a5%e7%9f%a5%e9%81%93%e5%a5%b9%e4%bb%ac)
@@ -36,17 +36,19 @@
   - [江山娇](#%e6%b1%9f%e5%b1%b1%e5%a8%87)
   - [被忽视的性别](#%e8%a2%ab%e5%bf%bd%e8%a7%86%e7%9a%84%e6%80%a7%e5%88%ab)
   - [性少数及其他边缘群体](#%e6%80%a7%e5%b0%91%e6%95%b0%e5%8f%8a%e5%85%b6%e4%bb%96%e8%be%b9%e7%bc%98%e7%be%a4%e4%bd%93)
+- [往期精选](#%e5%be%80%e6%9c%9f%e7%b2%be%e9%80%89)
+  - [NO.1](#no1)
 - [投稿地址：](#%e6%8a%95%e7%a8%bf%e5%9c%b0%e5%9d%80)
 
-## 不定期精选 NO.1
+## 本期精选
 
-[发哨子的人（人物）](https://www.notion.so/00a9beeb2fe54dfe84a55141a5f592cf?v=cf2bfae990fc4207a8710a40ffeb7f3c)
+[在方舱医院当安保的女大学生(女孩别怕)](https://mp.weixin.qq.com/s/jof1112ufgzHAqZpfrTHJw)
 
-[火神山上的女人们（人物）](https://mp.weixin.qq.com/s/aXDdADI4hdrRy6Fr9bY6jg)
+[一名基层社区网格员疫情期间的工作自述(尖椒部落)](https://mp.weixin.qq.com/s/tVZ5zSdoQnmGg4ZGfRswfQ)
 
-[武汉女人关秀丽扛起的三十天（人物）](https://mp.weixin.qq.com/s/ac55SIyv2gl1ruN7tGPWsg)
+[“天津福尔摩斯”：零增长28天，才可以百分之百放心(环球网)](https://mp.weixin.qq.com/s/-a45BCfl9kJhOJY3xse6oQ)
 
-[在武汉的姑娘们（电台·坏姐姐编辑部）](http://music.163.com/program/2065937690/3241671962/?userid=601747591 )
+[霸气女议员怒怼美国CDC(英国报姐)](https://m.weibo.cn/status/4482063467843291?wm=3333_2001&sourcetype=weixin&from=groupmessage&isappinstalled=0)
 
 ## 妇女节专栏
 
@@ -458,6 +460,18 @@
 [疫情中的她们做了什么 | 妇女节专题 （弥生/北同文化）](https://mp.weixin.qq.com/s/2XLDeGRhUu-2JPnwAE8FaA)
 
 [“身份暴露”和断药，武汉艾滋病患者的双重危机(新京报)](https://mp.weixin.qq.com/s/iS4-SULmBBCoAPDIP6fq7Q)
+
+## 往期精选
+
+### NO.1
+
+[发哨子的人（人物）](https://www.notion.so/00a9beeb2fe54dfe84a55141a5f592cf?v=cf2bfae990fc4207a8710a40ffeb7f3c)
+
+[火神山上的女人们（人物）](https://mp.weixin.qq.com/s/aXDdADI4hdrRy6Fr9bY6jg)
+
+[武汉女人关秀丽扛起的三十天（人物）](https://mp.weixin.qq.com/s/ac55SIyv2gl1ruN7tGPWsg)
+
+[在武汉的姑娘们（电台·坏姐姐编辑部）](http://music.163.com/program/2065937690/3241671962/?userid=601747591 )
 
 ## 投稿地址：
 *[《看见疫情中的女性》选编集投稿](https://shimo.im/forms/Xaq4MRZgnbSWFGk0/fill)*
