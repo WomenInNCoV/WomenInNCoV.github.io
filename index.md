@@ -42,13 +42,13 @@
 
 ## 本期精选
 
-[在方舱医院当安保的女大学生(女孩别怕)](https://mp.weixin.qq.com/s/jof1112ufgzHAqZpfrTHJw)
+[在方舱医院当安保的女大学生（女孩别怕）](https://mp.weixin.qq.com/s/jof1112ufgzHAqZpfrTHJw)
 
-[一名基层社区网格员疫情期间的工作自述(尖椒部落)](https://mp.weixin.qq.com/s/tVZ5zSdoQnmGg4ZGfRswfQ)
+[一名基层社区网格员疫情期间的工作自述（尖椒部落）](https://mp.weixin.qq.com/s/tVZ5zSdoQnmGg4ZGfRswfQ)
 
-[天津一百货大楼相继出现5例确诊病例！专家全程脱稿 揭开层层迷雾(观察者网)](https://m.weibo.cn/1887344341/4467912238524254)
+[天津一百货大楼相继出现5例确诊病例！专家全程脱稿 揭开层层迷雾（观察者网）](https://m.weibo.cn/1887344341/4467912238524254)
 
-[霸气女议员怒怼美国CDC(英国报姐)](https://m.weibo.cn/status/4482063467843291?wm=3333_2001&sourcetype=weixin&from=groupmessage&isappinstalled=0)
+[霸气女议员怒怼美国CDC（英国报姐）](https://m.weibo.cn/status/4482063467843291?wm=3333_2001&sourcetype=weixin&from=groupmessage&isappinstalled=0)
 
 ## 妇女节专栏
 
@@ -60,9 +60,9 @@
 
 [今天很多人对你说节日快乐，我却想祝贺你不再是过去的自己（Alex/绝对是个妞）](https://mp.weixin.qq.com/s/whkDJNBMo-B_fQkv2DaYCg)
 
-[不是女生，不当女神，只想高声祝大家妇女节快乐！(胡悠悠)](https://mp.weixin.qq.com/s/8FpfcBe0hQIb6_qNSj5Deg)
+[不是女生，不当女神，只想高声祝大家妇女节快乐！（胡悠悠）](https://mp.weixin.qq.com/s/8FpfcBe0hQIb6_qNSj5Deg)
 
-[2020年，我们如何度过妇女节(回声Huisheng)](https://mp.weixin.qq.com/s/lWYCPZkS6X7rKqnm3_j7KQ)
+[2020年，我们如何度过妇女节（回声Huisheng）](https://mp.weixin.qq.com/s/lWYCPZkS6X7rKqnm3_j7KQ)
 
 [女性素描 （丁邢/丁东小群）](https://mp.weixin.qq.com/s/puvW6OL3KyubcjPEcbS_sA)
 
@@ -85,7 +85,7 @@
 
 ### 你应该知道她们
  
-[那颗叫做高耀洁的小行星(编辑 Lisa/理想国 imaginist)](https://mp.weixin.qq.com/s/A2a-2U5bNu3VsFZkGO0tkg)
+[那颗叫做高耀洁的小行星（编辑 Lisa/理想国 imaginist）](https://mp.weixin.qq.com/s/A2a-2U5bNu3VsFZkGO0tkg)
 
 [胡舒立:遏制武汉新型肺炎蔓延,公众可以做什么？（胡舒立 财新传媒创办人）](http://hushuli.blog.caixin.com/archives/220126)
 
@@ -103,7 +103,7 @@
 
 [中国疾控中心原副主任：反思此疫，中国疾控该改革了 | 独家专访 （孙滔/DeepTech 深科技）](https://mp.weixin.qq.com/s/R8q9CfKCJ7KSjjMOJdgyCw)
 
-[ 武汉女人关秀丽扛起的三十天(人物)](https://mp.weixin.qq.com/s/ac55SIyv2gl1ruN7tGPWsg)
+[ 武汉女人关秀丽扛起的三十天（人物）](https://mp.weixin.qq.com/s/ac55SIyv2gl1ruN7tGPWsg)
 
 ## 女性医务工作者
 
@@ -117,7 +117,7 @@
 
 ### 医生与护士
 
-[两名武汉女性医护人员的生与死(NYT双语阅读)](https://mp.weixin.qq.com/s/QKkU02F5PC5j1EjqGGnM-Q)
+[两名武汉女性医护人员的生与死（NYT双语阅读）](https://mp.weixin.qq.com/s/QKkU02F5PC5j1EjqGGnM-Q)
 
 [她们在战疫：有人一月没见孩子，有人奔袭500公里回武汉(三联生活周刊)](https://mp.weixin.qq.com/s/xh_V6oJa4ze0jGC3AoqyLg)
 
@@ -230,7 +230,7 @@
 
 [湖北籍女工：被疫情困住，被家务缠住 （小郜/尖椒部落）](https://mp.weixin.qq.com/s/64fHfXe4Oxc6h_lHBALcdA)
 
-[“逆行”的还有她们！隔离病房的清洁工阿姨(中国妇女报)](https://mp.weixin.qq.com/s/RVh2K3DThO8o5bKY3vaf4Q)
+[“逆行”的还有她们！隔离病房的清洁工阿姨（中国妇女报）](https://mp.weixin.qq.com/s/RVh2K3DThO8o5bKY3vaf4Q)
 
 ### 商人
 
@@ -240,7 +240,7 @@
 
 ### 媒体人
 
-[那个发勺子的女记者：看看我给你们准备的炸弹！(克格勃密档)](https://mp.weixin.qq.com/s/bZ0qUXGPOdL0C5Og-yvGKg)
+[那个发勺子的女记者：看看我给你们准备的炸弹！（克格勃密档）](https://mp.weixin.qq.com/s/bZ0qUXGPOdL0C5Og-yvGKg)
 
 [瘟疫、语言和具体的人：与历史学家罗新的聊天 （剩余价值 SurplusValue）](https://chinadigitaltimes.net/chinese/2020/02/罗新：封！城等极端措施带来的伤害-，会比病毒本/)
 
@@ -254,7 +254,7 @@
 
 [在武汉的姑娘们（电台·坏姐姐编辑部）](http://music.163.com/program/2065937690/3241671962/?userid=601747591 )
 
-[女报记者武汉纪事〡“流调”如探案：从“复盘”开始( 中国妇女报)](https://mp.weixin.qq.com/s/YYPHKeh40plEvKxGgMA0Mg)
+[女报记者武汉纪事〡“流调”如探案：从“复盘”开始（中国妇女报）](https://mp.weixin.qq.com/s/YYPHKeh40plEvKxGgMA0Mg)
 
 ### 学者
 
@@ -270,7 +270,7 @@
 
 ### 文艺工作者
 
-[被禁柏林的严歌苓，借唐婉三字悲悼反思(虎度门)](http://206.189.252.32:8083/%E8%A2%AB%E7%A6%81%E6%9F%8F%E6%9E%97%E7%9A%84%E4%B8%A5%E6%AD%8C%E8%8B%93%EF%BC%8C%E5%80%9F%E5%94%90%E5%A9%89%E4%B8%89%E5%AD%97%E6%82%B2%E6%82%BC%E5%8F%8D%E6%80%9D.html)
+[被禁柏林的严歌苓，借唐婉三字悲悼反思（虎度门）](http://206.189.252.32:8083/%E8%A2%AB%E7%A6%81%E6%9F%8F%E6%9E%97%E7%9A%84%E4%B8%A5%E6%AD%8C%E8%8B%93%EF%BC%8C%E5%80%9F%E5%94%90%E5%A9%89%E4%B8%89%E5%AD%97%E6%82%B2%E6%82%BC%E5%8F%8D%E6%80%9D.html)
 
 [作家方方的武汉封城日记（方方/财新博客）](http://fangfang.blog.caixin.com/)
 
@@ -292,9 +292,9 @@
 
 [疫期读书\_丨汪天艾：我羞愧于那些不曾落在我身上的棍棒 （徐悦东/新京报书评周刊）](https://mp.weixin.qq.com/s/CscwZwXtRGNLL5MQUMYbHw)
 
-[武汉方舱里的焉支山（真实的诗人龙巧玲）| (好声量) ](https://mp.weixin.qq.com/s/QDGZlCLjG80-uZzLvHhcaA)
+[武汉方舱里的焉支山（真实的诗人龙巧玲）| （好声量） ](https://mp.weixin.qq.com/s/QDGZlCLjG80-uZzLvHhcaA)
 
-[致六六：千万人的苦难，不应该是你的素材( Epoch故事小馆)](https://mp.weixin.qq.com/s/VYo2eolVXQjt9QMoBpeXBA)
+[致六六：千万人的苦难，不应该是你的素材（Epoch故事小馆）](https://mp.weixin.qq.com/s/VYo2eolVXQjt9QMoBpeXBA)
 
 ### 志愿者
 
@@ -312,13 +312,13 @@
 
 [韩红基金会“举报门”有了处理结果，该事件对公益组织是个警示 （邱慧/中国慈善家杂志）](https://mp.weixin.qq.com/s/aIP6AoLnhxkR9wToWzoeiA)
 
-[经期用品对防疫女战士有多重要？姐妹战疫行动的720小时告诉你！( WOMENOK)](https://mp.weixin.qq.com/s/CxJuPK6284bl7c77HJnYpw)
+[经期用品对防疫女战士有多重要？姐妹战疫行动的720小时告诉你！ (WOMENOK)](https://mp.weixin.qq.com/s/CxJuPK6284bl7c77HJnYpw)
 
 ## 疫情亲历者
 
 ### 患者
 
-[一个武汉女孩的生死问答( 中青报·中青网记者 王梦影/冰点周刊)](https://mp.weixin.qq.com/s/g31RpcwhUXNujdCiLrCzbw)
+[一个武汉女孩的生死问答（中青报·中青网记者 王梦影/冰点周刊）](https://mp.weixin.qq.com/s/g31RpcwhUXNujdCiLrCzbw)
 
 [武汉女孩得肺炎后写遗书，在家隔离 16 天治愈（石鸣/一条）](https://mp.weixin.qq.com/s/ht-0jMhVeAo-S8yIJGuMlA)
 
@@ -359,7 +359,7 @@
 
 ### 普通人
 
-[在方舱医院当安保的女大学生( 女孩别怕)](https://mp.weixin.qq.com/s/jof1112ufgzHAqZpfrTHJw)
+[在方舱医院当安保的女大学生（女孩别怕）](https://mp.weixin.qq.com/s/jof1112ufgzHAqZpfrTHJw)
 
 [武汉“封城”前一刻，一名大三女生决定留下来（李仪/澎湃新闻）](https://mp.weixin.qq.com/s/0e4qGvDiMDO4xbVW-H4E6g)
 
@@ -384,11 +384,11 @@
 
 ### 性别暴力
 
-[【新数据】《反家暴法》在上海｜基于91份保护令案例的分析(硝美丽)](https://mp.weixin.qq.com/s/qDkpKyqEijuxpkoiWDXzKg)
+[【新数据】《反家暴法》在上海｜基于91份保护令案例的分析（硝美丽）](https://mp.weixin.qq.com/s/qDkpKyqEijuxpkoiWDXzKg)
 
-[“我自己把血擦掉去睡觉了” | 反家暴小疫苗的自述(回声Huisheng)](https://mp.weixin.qq.com/s/udwrF-4QBN--La9wsf0KyA)
+[“我自己把血擦掉去睡觉了” | 反家暴小疫苗的自述（回声Huisheng）](https://mp.weixin.qq.com/s/udwrF-4QBN--La9wsf0KyA)
 
-[中国家庭｜那些因疫情而生的家暴(澎湃新闻)](https://m.thepaper.cn/newsDetail_forward_6380299?from=groupmessage&isappinstalled=0)
+[中国家庭｜那些因疫情而生的家暴（澎湃新闻）](https://m.thepaper.cn/newsDetail_forward_6380299?from=groupmessage&isappinstalled=0)
 
 [疫期反家暴|听到邻居打骂小孩后，我给 ta 们写了一封信 （猪西西/硝美丽）](https://mp.weixin.qq.com/s/IQs8fuTHXVUegwSNz6gU3Q)
 
@@ -429,23 +429,23 @@
 
 [疫情揭露中国普遍存在的性别歧视 （经济学人）](http://archive.is/WNO8s)
 
-[男记者笔下的女性社会问题，是什么样的？(做書)](https://mp.weixin.qq.com/s/ChdFF3tn2wyCxiWrb5i5cw)
+[男记者笔下的女性社会问题，是什么样的？（做書）](https://mp.weixin.qq.com/s/ChdFF3tn2wyCxiWrb5i5cw)
 
 ### 被忽视的性别
 
 [流行性传染病防治应重视性别差异 （中国妇联新闻）](https://mp.weixin.qq.com/s/etw9yuD3bQSUqIkOtvJb-Q)
 
-[易被忽视的护士：医护间的不平等是在复制传统性别结构？(澎湃思想市场)](https://mp.weixin.qq.com/s/FwE0JYF9y7iijlIbP9g_yw)
+[易被忽视的护士：医护间的不平等是在复制传统性别结构？（澎湃思想市场）](https://mp.weixin.qq.com/s/FwE0JYF9y7iijlIbP9g_yw)
 
 [柳叶刀女性专题 | 全球健康中的性别时代即将到来 （柳叶刀/柳叶刀 TheLancet）](https://mp.weixin.qq.com/s/2p7Wgcp6ttLATqJQl2QLJA)
 
-[对不起，我们设计的时候没考虑女性(果壳)](https://mp.weixin.qq.com/s/QPUuU1gx4NRVD0ER3M1hSA)
+[对不起，我们设计的时候没考虑女性（果壳）](https://mp.weixin.qq.com/s/QPUuU1gx4NRVD0ER3M1hSA)
 
-[“我不在乎薪酬，只想回去工作”——病毒侵袭下的亚洲女性(尖椒部落)](https://mp.weixin.qq.com/s/EaE0wqGGCOqT_WqnE7YMZw)
+[“我不在乎薪酬，只想回去工作”——病毒侵袭下的亚洲女性（尖椒部落）](https://mp.weixin.qq.com/s/EaE0wqGGCOqT_WqnE7YMZw)
 
-[是否该为男性和女性处方不同剂量的精神药物?「临床研究」（ 大话精神 ）](https://mp.weixin.qq.com/s/5FP-yS0RQLO9Ih_IKoaAHA)
+[是否该为男性和女性处方不同剂量的精神药物?「临床研究」（大话精神）](https://mp.weixin.qq.com/s/5FP-yS0RQLO9Ih_IKoaAHA)
 
-[疼痛有性别差异，女性却一直在吃为男性研发的止疼药（环球科学 果壳 ）](https://mp.weixin.qq.com/s/K1aTFf9FU0KJVP0pB-SV9g)
+[疼痛有性别差异，女性却一直在吃为男性研发的止疼药（环球科学 果壳）](https://mp.weixin.qq.com/s/K1aTFf9FU0KJVP0pB-SV9g)
 
 [你不知道的性别偏见：大部分药物都更适合男性，女性却“无药可用”（斯特凡尼克 环球科学）](https://mp.weixin.qq.com/s/26egZoiBKpdHLvZJ03nFPw)
 
