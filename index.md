@@ -67,52 +67,19 @@ By A2N, 床位组, 选编小组
 
 ### 妇女节快乐
 
-[邓艾艾艾：妇女节快乐 （沙语 ETsai/沙尘低喃）](https://mp.weixin.qq.com/s/DkWmsnlO0ggaaUYifDyyuQ)
-
-[今年女生节最想要的礼物（ Her 小号）](https://mp.weixin.qq.com/s/VIVA2xh4miN4M15FArWBrg)
-
-[今天很多人对你说节日快乐，我却想祝贺你不再是过去的自己（Alex/绝对是个妞）](https://mp.weixin.qq.com/s/whkDJNBMo-B_fQkv2DaYCg)
-
 [不是女生，不当女神，只想高声祝大家妇女节快乐！（胡悠悠）](https://mp.weixin.qq.com/s/8FpfcBe0hQIb6_qNSj5Deg)
-
-[2020年，我们如何度过妇女节（回声Huisheng）](https://mp.weixin.qq.com/s/lWYCPZkS6X7rKqnm3_j7KQ)
-
-[女性素描 （丁邢/丁东小群）](https://mp.weixin.qq.com/s/puvW6OL3KyubcjPEcbS_sA)
-
-[看见女性技术力量 （唐云路/人间像素）](https://mp.weixin.qq.com/s/BlTwLi6HzujbyhwQ0usBtA)
 
 [战“疫”巾帼谱——三·八国际劳动妇女节专题 （中国妇女报）](http://www.cnwomen.com.cn/cnwomen/ztlm/kjxxfyztbd/index.shtml)
 
-[冯媛：性别平等是最漫长的革命，要保持愤怒、希望和行动 | 北京世妇会 25 周年 （林子人/界面文化）](https://mp.weixin.qq.com/s/dzFz5x3BRXy00Mv3BKzCEA)
-
-[中国妇女组织的前世今生｜讲座纪要 （冯媛/女力翻转）](https://mp.weixin.qq.com/s/RPrNGGf9GS8fUD1-d3SDLg)
-
-[妇女节 | 2020 年，那些有关女性权益的新闻 （复旦大学认性社/我从哪里来）](https://mp.weixin.qq.com/s/hSMJ8er-KFXSb6ITRe1idA)
-
-[反女权者和父系家庭 （Zehao Pan/ Philosophia 哲学社）](https://mp.weixin.qq.com/s/FDb5ds1DskhdjSYsNffRyg)
-
-[生育制度、父系家庭和个体化：对《反女权者和父系家庭》的实证补充（米泽/Philosophia 哲学社）](https://mp.weixin.qq.com/s/YTBta5EfBd4miDxk7Sz21A)
-
-[要想性别平等，这些问题一定要谈（澎湃新闻）](https://mp.weixin.qq.com/s/9Xw2jD8fo54TJmdeN9ya5g)
-
-
 ### 你应该知道她们
  
-[那颗叫做高耀洁的小行星（编辑 Lisa/理想国 imaginist）](https://mp.weixin.qq.com/s/A2a-2U5bNu3VsFZkGO0tkg)
-
 [胡舒立:遏制武汉新型肺炎蔓延,公众可以做什么？（胡舒立 财新传媒创办人）](http://hushuli.blog.caixin.com/archives/220126)
-
-[当一个女孩决定为事业奋斗一生（王劈柴&矩阵星/果壳）](https://mp.weixin.qq.com/s/XwQi7T_3faqgtFgEu0QxKw)
-
-[看见女性劳动者：创造历史的女动画人（马小褂/动画学术趴）](https://mp.weixin.qq.com/s/2jQXDELpMrOwpTS8l21dkA)
 
 [【3.8 专题】李兰娟院士：抗疫不成功绝不收兵 （肖欢欢 洪豆/大洋网）](http://news.dayoo.com/gzrbyc/202003/07/158752_53178480.htm)
 
 [重回华南海鲜市场：石正丽再次现身，提取样本研究病毒存活环境丨封面调查 （梁波 田雪皎/封面新闻）](https://mp.weixin.qq.com/s/-K1NQN1ObkSv0YQxv9pW1g)
 
 [陈薇院士｜《战狼 2》中的人物原型，入鄂抗疫的“硬汉”女少将 （军科人）](https://mp.weixin.qq.com/s/9axkg7orDek0eQTtlmmrsw)
-
-[3.8 节特辑 | 医药圈十大女 BOSS 盘点（GBIHealth/GBIHealth）](https://mp.weixin.qq.com/s/Gncu5JmxLGoYyJJrdH0ekg)
 
 [中国疾控中心原副主任：反思此疫，中国疾控该改革了 | 独家专访 （孙滔/DeepTech 深科技）](https://mp.weixin.qq.com/s/R8q9CfKCJ7KSjjMOJdgyCw)
 
