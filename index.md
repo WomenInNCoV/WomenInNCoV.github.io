@@ -8,7 +8,18 @@
 
 ##### By A2N, 床位组, 选编小组
 
-- [本期精选（2020年3月22日）](#%e6%9c%ac%e6%9c%9f%e7%b2%be%e9%80%892020%e5%b9%b43%e6%9c%8822%e6%97%a5)
+<!-- omit in toc -->
+## 本期精选（2020年3月22日）
+
+[在方舱医院当安保的女大学生（女孩别怕）](https://mp.weixin.qq.com/s/jof1112ufgzHAqZpfrTHJw)
+
+[一名基层社区网格员疫情期间的工作自述（尖椒部落）](https://mp.weixin.qq.com/s/tVZ5zSdoQnmGg4ZGfRswfQ)
+
+[天津一百货大楼相继出现5例确诊病例！专家全程脱稿 揭开层层迷雾（观察者网）](https://m.weibo.cn/1887344341/4467912238524254)
+
+[霸气女议员怒怼美国CDC（英国报姐）](https://m.weibo.cn/status/4482063467843291?wm=3333_2001&sourcetype=weixin&from=groupmessage&isappinstalled=0)
+
+[往期精选点这里](#往期精选)
 - [妇女节专栏](#%e5%a6%87%e5%a5%b3%e8%8a%82%e4%b8%93%e6%a0%8f)
   - [妇女节快乐](#%e5%a6%87%e5%a5%b3%e8%8a%82%e5%bf%ab%e4%b9%90)
   - [你应该知道她们](#%e4%bd%a0%e5%ba%94%e8%af%a5%e7%9f%a5%e9%81%93%e5%a5%b9%e4%bb%ac)
@@ -38,17 +49,10 @@
   - [性少数及其他边缘群体](#%e6%80%a7%e5%b0%91%e6%95%b0%e5%8f%8a%e5%85%b6%e4%bb%96%e8%be%b9%e7%bc%98%e7%be%a4%e4%bd%93)
 - [往期精选](#%e5%be%80%e6%9c%9f%e7%b2%be%e9%80%89)
   - [NO.1](#no1)
+- [No.2](#no2)
 - [投稿地址：](#%e6%8a%95%e7%a8%bf%e5%9c%b0%e5%9d%80)
 
-## 本期精选（2020年3月22日）
 
-[在方舱医院当安保的女大学生（女孩别怕）](https://mp.weixin.qq.com/s/jof1112ufgzHAqZpfrTHJw)
-
-[一名基层社区网格员疫情期间的工作自述（尖椒部落）](https://mp.weixin.qq.com/s/tVZ5zSdoQnmGg4ZGfRswfQ)
-
-[天津一百货大楼相继出现5例确诊病例！专家全程脱稿 揭开层层迷雾（观察者网）](https://m.weibo.cn/1887344341/4467912238524254)
-
-[霸气女议员怒怼美国CDC（英国报姐）](https://m.weibo.cn/status/4482063467843291?wm=3333_2001&sourcetype=weixin&from=groupmessage&isappinstalled=0)
 
 ## 妇女节专栏
 
@@ -472,6 +476,17 @@
 [武汉女人关秀丽扛起的三十天（人物）](https://mp.weixin.qq.com/s/ac55SIyv2gl1ruN7tGPWsg)
 
 [在武汉的姑娘们（电台·坏姐姐编辑部）](http://music.163.com/program/2065937690/3241671962/?userid=601747591 )
+
+## No.2
+
+
+[在方舱医院当安保的女大学生（女孩别怕）](https://mp.weixin.qq.com/s/jof1112ufgzHAqZpfrTHJw)
+
+[一名基层社区网格员疫情期间的工作自述（尖椒部落）](https://mp.weixin.qq.com/s/tVZ5zSdoQnmGg4ZGfRswfQ)
+
+[天津一百货大楼相继出现5例确诊病例！专家全程脱稿 揭开层层迷雾（观察者网）](https://m.weibo.cn/1887344341/4467912238524254)
+
+[霸气女议员怒怼美国CDC（英国报姐）](https://m.weibo.cn/status/4482063467843291?wm=3333_2001&sourcetype=weixin&from=groupmessage&isappinstalled=0)
 
 ## 投稿地址：
 *[《看见疫情中的女性》选编集投稿](https://shimo.im/forms/Xaq4MRZgnbSWFGk0/fill)*
